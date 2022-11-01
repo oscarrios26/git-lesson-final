@@ -1,1 +1,1 @@
-/Oscar was here again/
+Oscar was here
